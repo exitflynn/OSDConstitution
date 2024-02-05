@@ -16,6 +16,5 @@
     33.2: Not to change the group pfp in a manner that it may convey we endorse more than one cat, or any other animal so aptly fitting [the dark triads](https://en.wikipedia.org/wiki/Dark_triad) for that matter.
     33.3: Offer help in JavaScript doubts, but with reluctance.
     33.4: Promote our primary communication line a minimum of once every 5 lunar cycles.
-    Any inability in upholding these tenants 
 
 **39\.** Parties are fun and necessary and at the very least, annual.
